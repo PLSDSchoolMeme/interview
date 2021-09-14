@@ -32,6 +32,10 @@ we will be holding a interview with Dr briggs and other staff about the current 
 
 14. will we end up going back to virtual?
 
+15. there are still students who get mis gendered how are you planning to fix that?
+
+16. why are you the superintedent
+
 ## Joke repsones
 
 1. have you ever had a dream that you you with you want you could you can you when you
@@ -41,3 +45,5 @@ we will be holding a interview with Dr briggs and other staff about the current 
 3. is it true that you are a werewolf?
 
 4. does he like cheese sticks
+
+5. is your alter ego biggy briggs
