@@ -27,3 +27,13 @@ we will be holding a interview with Dr briggs and other staff about the current 
 11. why are we not required to wear masks even though there's an upsurge in cases?
 
 12. why did north not give out any notices about the bomb threat until after the bells have rung?
+
+## Joke repsones
+
+1. have you ever had a dream that you you with you want you could you can you when you
+
+2. bogos binted?
+
+3. is it true that you are a werewolf?
+
+4. does he like cheese sticks
