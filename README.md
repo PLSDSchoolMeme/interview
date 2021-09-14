@@ -28,6 +28,10 @@ we will be holding a interview with Dr briggs and other staff about the current 
 
 12. why did north not give out any notices about the bomb threat until after the bells have rung?
 
+13. why dont you care about your students
+
+14. will we end up going back to virtual?
+
 ## Joke repsones
 
 1. have you ever had a dream that you you with you want you could you can you when you
