@@ -34,9 +34,9 @@ we will be holding a interview with Dr briggs and other staff about the current 
 
 15. there are still students who get mis gendered how are you planning to fix that?
 
-16. why are you the superintedent
+16. why are you the superintendent
 
-## Joke repsones
+## Joke response
 
 1. have you ever had a dream that you you with you want you could you can you when you
 
