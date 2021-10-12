@@ -1,4 +1,4 @@
-# Interview with Dr briggs
+# Interview with Dr briggs/Principles 
 
 we will be holding a interview with Dr briggs and other staff about the current state of this school district.
 
@@ -35,6 +35,8 @@ we will be holding a interview with Dr briggs and other staff about the current 
 15. there are still students who get mis gendered how are you planning to fix that?
 
 16. why are you the superintendent
+
+17. how did you feel homecoming went
 
 ## Joke response
 
